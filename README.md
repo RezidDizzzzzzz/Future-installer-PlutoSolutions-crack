@@ -1,8 +1,8 @@
 # Future-installer-PlutoSolutions-crack
 <p>Future client crack by  PlutoSolutions</p>
 <p>Ru:
-<a>PlutoSolutions взломали , но у меня остался загрузчик .</a>
-<a>Их официальный Telegram аккаунт : t.me/PlutoSolutions .</a>
+PlutoSolutions взломали , но у меня остался загрузчик 
+Их официальный Telegram аккаунт : t.me/PlutoSolutions .</p>
 Eng:
 PlutoSolutions was hacked , but I still have the bootloader .
 Their official Telegram account : t.me/PlutoSolutions .
