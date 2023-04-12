@@ -1,5 +1,5 @@
 # Future-installer-PlutoSolutions-crack
-Future client crack by  PlutoSolutions
+#Future client crack by  PlutoSolutions
 Ru:
 PlutoSolutions взломали , но у меня остался загрузчик .
 Их официальный Telegram аккаунт : t.me/PlutoSolutions .
